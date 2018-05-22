@@ -1,4 +1,4 @@
-# learn-to-live
+# learn to live
 
 20141112 [如果拿掉 你現在的「專業」，你還剩什麼？ 用一句話，就讓所有的人 都清醒了...](http://www.cmoney.tw/notes/note-detail.aspx?nid=19500)  
 20161017 [看透是本事，不說透是修養。看透不說透，才是聰明人](http://www.cmoney.tw/notes/note-detail.aspx?nid=63685)  
