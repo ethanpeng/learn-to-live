@@ -2,8 +2,10 @@
 
 20141112 [如果拿掉 你現在的「專業」，你還剩什麼？ 用一句話，就讓所有的人 都清醒了...](http://www.cmoney.tw/notes/note-detail.aspx?nid=19500)  
 20141124 [做事的本領是 智商，做人的表現是 情商。這 8 種員工 公司寧可 破產 也不請！](http://www.cmoney.tw/notes/note-detail.aspx?nid=20137)  
+20160718 [默默努力的人，才能笑到最後！勝過曹操、諸葛亮，他靠「烏龜哲學」成為三國大贏家](https://www.businessweekly.com.tw/article.aspx?id=17250&type=Blog&p=1)  
 20161017 [看透是本事，不說透是修養。看透不說透，才是聰明人](http://www.cmoney.tw/notes/note-detail.aspx?nid=63685)  
 20161216 [老了，要給自己留「 7 張底牌」！趁現在年輕，趕快為自己儲備好...](http://www.cmoney.tw/notes/note-detail.aspx?nid=66908)  
+20161225 [跟司馬懿學做人，跟諸葛亮學做事](https://read01.com/zh-tw/E6JPgk.html#.WwOBV9YRUYi)  
 20180110[一生不想窮，請你花幾分鐘記下來！（否則，你會多浪費十年...）](https://www.cmoney.tw/notes/note-detail.aspx?nid=106106)  
 20180115 [世上最大的羞辱不是 罵你 ， 而是看穿卻不拆穿](http://www.cmoney.tw/notes/note-detail.aspx?nid=106283)  
 20180118 [你現在的態度，決定十年後 你是人物 還是廢物！](https://www.cmoney.tw/notes/note-detail.aspx?nid=106454)  
