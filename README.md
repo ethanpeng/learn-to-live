@@ -6,7 +6,7 @@
 20161017 [看透是本事，不說透是修養。看透不說透，才是聰明人](http://www.cmoney.tw/notes/note-detail.aspx?nid=63685)  
 20161216 [老了，要給自己留「 7 張底牌」！趁現在年輕，趕快為自己儲備好...](http://www.cmoney.tw/notes/note-detail.aspx?nid=66908)  
 20161225 [跟司馬懿學做人，跟諸葛亮學做事](https://read01.com/zh-tw/E6JPgk.html#.WwOBV9YRUYi)  
-20180110[一生不想窮，請你花幾分鐘記下來！（否則，你會多浪費十年...）](https://www.cmoney.tw/notes/note-detail.aspx?nid=106106)  
+20180110 [一生不想窮，請你花幾分鐘記下來！（否則，你會多浪費十年...）](https://www.cmoney.tw/notes/note-detail.aspx?nid=106106)  
 20180115 [世上最大的羞辱不是 罵你 ， 而是看穿卻不拆穿](http://www.cmoney.tw/notes/note-detail.aspx?nid=106283)  
 20180118 [你現在的態度，決定十年後 你是人物 還是廢物！](https://www.cmoney.tw/notes/note-detail.aspx?nid=106454)  
 20180122 [上等人論格局，中等人談問題，下等人聊是非](http://www.cmoney.tw/notes/note-detail.aspx?nid=106589)  
